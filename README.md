@@ -1,1 +1,1 @@
-# exercicesite
+# exercisesite
